@@ -7,5 +7,5 @@ I love creating new applications and seeing them come to life in such an easy an
 Outisde of Coding and Cooking, I love hitting the gym, golfing, and socializing. I also enjoy reading and learning about new and upcoming tech that could be involved in any workspace and environment. 
 
 Fun Facts
-- I love Ginger
+- I love straight Ginger (the food)
 - I love Cars, especially F1
