@@ -9,3 +9,5 @@ Outisde of Coding and Cooking, I love hitting the gym, golfing, and socializing.
 Fun Facts
 - I love straight Ginger (the food)
 - I love Cars, especially F1
+- I love the stock market and figuring out the math behind it.
+- I love problem solving 
